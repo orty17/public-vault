@@ -27,10 +27,10 @@ Hiermit laden wir daher höchst offiziell zum "Lüppen – Eltern-Kind-Saufen 20
 
 Ziel des Abends ist es, sich in geselliger Runde kennenzulernen, gemeinsam zu essen und anschließend bei dem einen oder anderen Kaltgetränk herauszufinden, von wem wir gewisse Eigenschaften eigentlich geerbt haben.
 
-Für die notwendige Abendgestaltung werden selbstverständlich ausreichend Getränke, Spiele und weitere hochseriöse Programmpunkte vorbereitet. Die genauen Disziplinen unterliegen aktuell noch strengster Geheimhaltung.
+Für die notwendige Abendgestaltung werden selbstverständlich ausreichend Getränke und Spiele vorbereitet. Die genauen Disziplinen unterliegen aktuell noch strengster Geheimhaltung.
 
 Wir freuen uns auf einen entspannten Abend mit euch und hoffen auf zahlreiches Erscheinen!
-Für eine bessere Planbarkeit bitte ich euch an dieser Umfrage kurz teilzunehmen:
+Für eine bessere Planbarkeit bitte ich euch an dieser Umfrage bis zum 01.11.2026 teilzunehmen:
 https://docs.google.com/forms/d/e/1FAIpQLSevvIWicnNN4WVW5pkEv78Sad-lnsoLEabemLrGsUDRITv2RQ/viewform?usp=publish-editor
 
 In diesem Sinne:
