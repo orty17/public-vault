@@ -5,7 +5,6 @@
 - Wer: Lüppen mitglieder, Eltern & Geschwister
 - Essen: Döner?
 - Umlage: 20€
-- Test: 12
 # Spiele & Aktion?
 
 # Getränke
