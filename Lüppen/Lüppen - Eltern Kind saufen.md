@@ -12,7 +12,7 @@
 # Einladung
 🍻 Offizielle Einladung zum „Lüppen – Eltern-Kind-Saufen“
 
-Sehr geehrte Eltern, Geschwister, Lüppen-Mitglieder und sonstige familiäre Begleiterscheinungen,
+Sehr geehrte Eltern, Geschwister, Lüppen-Mitglieder, Partnerinnen und Partner sowie sonstige familiäre Begleiterscheinungen,
 
 nach jahrelanger sorgfältiger Vorbereitung, zahlreichen Sitzungen und vermutlich noch mehr Getränken ist es endlich an der Zeit, die Menschen zusammenzubringen, die für unsere Existenz zumindest teilweise verantwortlich sind.
 
@@ -21,7 +21,7 @@ Hiermit laden wir daher höchst offiziell zum "Lüppen – Eltern-Kind-Saufen 20
 📅 Freitag, 20. November 2026
 🕡 Beginn: 18:30 Uhr
 📍 Tagungsstätte: Bei Lenny, Deipenbrock 29, Legden
-👨‍👩‍👧‍👦 Teilnahmeberechtigt: Lüppen-Mitglieder inklusive Eltern & Geschwister
+👨‍👩‍👧‍👦 Teilnahmeberechtigt: Lüppen-Mitglieder inklusive Eltern, Geschwister, Partnerinnen und Partner
 🥙 Festmahl: Döner
 💰 Umlage: 20 € pro Person
 
