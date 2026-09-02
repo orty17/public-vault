@@ -3,8 +3,12 @@
 - Zeitpunkt: 20.11.2026 18:30 Uhr
 - Wo: Lenny, Deipenbrock 29, Legden
 - Wer: Lüppen mitglieder, Eltern & Geschwister
-- Essen: Döner?
+- Essen: Currywurst
 - Umlage: 20€
+
+# Aufgaben
+#x
+
 # Spiele & Aktion?
 
 # Getränke
